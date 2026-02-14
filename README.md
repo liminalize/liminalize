@@ -1,8 +1,7 @@
 
 <p align="center">
 <img style="width: 100%; height: 90%" src="https://file.garden/ZwwJTXO4W1VL_e-Z/twisteddandytapes.gif"> <br>
-adult (19) <br>
-i like roblox and stuff <br>
+hi i like roblox and stuff <br>
 -16 dni, basic dni <br>
 i block for whatever reason i want to i dont care <br>
   <br>
