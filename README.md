@@ -8,7 +8,7 @@
   <br>
     <img style="width: 600px; height: 40px" src="https://64.media.tumblr.com/2d03352cdd0fd0907852b3ee4fb306c6/85d07b12fd50c830-95/s2048x3072/52a52bf24b37c1b540cb55f3b40ebeef68282860.pnj"> <br>
 <br>
-</b>i block / hide for whatever reason i want<br> 
+</b>i block / hide for whatever reason i want
 <br>i usually hide anyone under 16 by default - i dont want to be friends with you, sorry.<br>
 <br>
   <br>
