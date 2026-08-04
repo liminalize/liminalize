@@ -1,21 +1,14 @@
 
 <p align="center">
-   <sub>(this is ONLY for ponytown)</sub> <br>
-<img style="width: 600px; height: px" src="https://64.media.tumblr.com/233e48d30ffbdde92fe3f9e56a0d72b9/85d07b12fd50c830-74/s2048x3072/023e8b3d2a9da6e05c83a5e1975047c23fb7f68a.pnj"> <br>
-  <br>
-  enjoyer of all things liminal. <br>
-  meteorology, PHM, invincible, & CoD enjoyer <br>
-  <br>
-    <img style="width: 600px; height: 40px" src="https://64.media.tumblr.com/2d03352cdd0fd0907852b3ee4fb306c6/85d07b12fd50c830-95/s2048x3072/52a52bf24b37c1b540cb55f3b40ebeef68282860.pnj"> <br>
-<br>
-</b>i block / hide for whatever reason i want
-<br>i usually hide anyone under 16 by default - i dont want to be friends with you, sorry.<br>
-<br>
-  <br>
-  <img style="width: px; height: 30px" src="https://64.media.tumblr.com/f76ed219d1517bb305e3e812cbb37d68/fc07bc7aac045552-42/s1280x1920/449e066db68273d948244f95a09d0f081272933e.pnj"> <br>
-<br>
-i smoke weed<br>
-  <img style="width: %; height: %" src="https://file.garden/ZwwJTXO4W1VL_e-Z/backgrounds/budcat.png"> <br>
-  dni if that bothers u <br>
-  <br>
+<sup>$\color{#666666}\textsf{(this is ONLY for ponytown)}$ </sup> <br>
+   <img style="width: px; height: 600px" src="https://files.catbox.moe/f31d9t.png"><br>
+   <img src=https://files.catbox.moe/81w5nu.webp style="width: px; height: 15px">ㅤ $\color{#666666}\textsf{Jane / Church}$ <br>
+      $\color{#666666}\textsf{HE / IT — Adult ¹⁹}$ <br>
+         $\color{#666666}\textsf{ i block loosely}$ㅤ<img src=https://files.catbox.moe/z0ailv.webp style="width: px; height: 20px"> <br>
+   <br>
+ <p align="center">
+    <img src="https://komarev.com/ghpvc/?username=liminalize&style=for-the-badge&abbreviated=true&color=grey" alt="GitHub Views" style="width: 200px; height: px">
+</p>
+<p align="center">
+   <img style="width: px; height: 30px" src="https://64.media.tumblr.com/f76ed219d1517bb305e3e812cbb37d68/fc07bc7aac045552-42/s1280x1920/449e066db68273d948244f95a09d0f081272933e.pnj"> <br>
   <p align="center">
