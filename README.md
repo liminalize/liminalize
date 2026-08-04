@@ -1,6 +1,4 @@
-
 <p align="center">
-<sup>$\color{#666666}\textsf{(this is ONLY for ponytown)}$ </sup> <br>
    <img style="width: px; height: 600px" src="https://files.catbox.moe/f31d9t.png"><br>
    <img src=https://files.catbox.moe/81w5nu.webp style="width: px; height: 15px">ㅤ $\color{#666666}\textsf{Jane / Church}$ <br>
       $\color{#666666}\textsf{HE / IT — Adult ¹⁹}$ <br>
@@ -11,4 +9,5 @@
 </p>
 <p align="center">
    <img style="width: px; height: 30px" src="https://64.media.tumblr.com/f76ed219d1517bb305e3e812cbb37d68/fc07bc7aac045552-42/s1280x1920/449e066db68273d948244f95a09d0f081272933e.pnj"> <br>
+   <sup>$\color{#666666}\textsf{(this is ONLY for ponytown)}$ </sup> <br>
   <p align="center">
