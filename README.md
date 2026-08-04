@@ -1,5 +1,5 @@
 <p align="center">
-   <img style="width: px; height: 600px" src="https://files.catbox.moe/f31d9t.png"><br>
+   <img style="width: px; height: 550px" src="https://files.catbox.moe/f31d9t.png"><br>
    <img src=https://files.catbox.moe/81w5nu.webp style="width: px; height: 15px">ㅤ $\color{#666666}\textsf{Jane / Church}$ <br>
       $\color{#666666}\textsf{HE / IT — Adult ¹⁹}$ <br>
          $\color{#666666}\textsf{ i block loosely}$ㅤ<img src=https://files.catbox.moe/z0ailv.webp style="width: px; height: 20px"> <br>
